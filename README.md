@@ -20,3 +20,5 @@ Grâce à ce système, les policiers peuvent gérer efficacement les preuves et 
 2️⃣ Intégrez-le à votre serveur FiveM.
 3️⃣ Configurez selon vos préférences.
 4️⃣ Profitez d’un système RP avancé pour la gestion des preuves !
+
+http://discord.gg/BZBKaKdxCP
